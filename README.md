@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 # 💫 About Me:
-A PROSPECTIVE DATA SCIENTIST VERY SOON <br><br>
+A PROSPECTIVE DATA SCIENTIST <br><br>
 
 
 ## 🌐 Socials:
